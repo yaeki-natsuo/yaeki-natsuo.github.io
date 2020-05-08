@@ -1,1 +1,0 @@
-# yaeki-natsuo.github.io
